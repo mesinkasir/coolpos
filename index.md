@@ -1,37 +1,37 @@
-## Welcome to GitHub Pages
+# COOL POS 😎
 
-You can use the [editor on GitHub](https://github.com/mesinkasir/coolpos/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+New free and open source code point of sale gratis download
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+hip hop style with dark mode era.
 
-### Markdown
+Documentation and installation :
+[https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html](https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-6oV7M4hkw3I/YKS0OHWR1lI/AAAAAAAAOB0/QG74Tm50qsULnB9ihNfYPMiVq0toKbgkgCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25281%2529.jpg)
 
-# Header 1
-## Header 2
-### Header 3
+New pos apps source code cool design 🤟
 
-- Bulleted
-- List
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-yGbYTqDUbiQ/YKS0Nn8jGCI/AAAAAAAAOBs/DkcVrbo1sx8XFa0PKa37L-JbvN-UjGjHQCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25282%2529.jpg)
 
-1. Numbered
-2. List
+Mobile apps ready for accsess 👊
 
-**Bold** and _Italic_ and `Code` text
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-mTm5m04nfaY/YKS0N2WSg1I/AAAAAAAAOBw/iyP9tGrDThgiljvdGn1qJ_05PF_Csp86gCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25283%2529.jpg)
 
-[Link](url) and ![Image](src)
-```
+Master databased user ,account , gallery , group categories, product.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-GhI0MlVA_lc/YKS0Pat8GVI/AAAAAAAAOB4/6P2fzp1NKvczx8xR7G71m3LadYdfqrSmwCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25284%2529.jpg)
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/mesinkasir/coolpos/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Point of sale cashier features
 
-### Support or Contact
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-Kw2h1b4BcR8/YKS0QpJ0Y9I/AAAAAAAAOB8/HlkGtAyw07kDMnNiJdiUaUW5cqb9zXp5gCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25285%2529.jpg)
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+All report details
+
+![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-MQzMbZDcuiM/YKS0ReAJSGI/AAAAAAAAOCA/2UVhg_-GO_QRZ-CbV3M9YZL8vliVMj2lgCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25286%2529.jpg)
+
+Get started Now with cool pos web apps.
+
+Documentation and installation :
+[https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html](https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html)
