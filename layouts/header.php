@@ -3,6 +3,7 @@
   <html lang="en">
     <head>
     <meta charset="UTF-8">
+	    <meta name="viewport" content="width=device-width, initial-scale=1">
     <title><?php if (!empty($page_title))
            echo remove_junk($page_title);
             elseif(!empty($user))
