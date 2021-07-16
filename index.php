@@ -40,7 +40,7 @@
 <p class="lead">
 Helo.. this time a freedom with cool pos, free download gratis and open source code point of sale apps including inventori stock management for supporting your bussiness.
 </p>
-<a href="" class="btn btn-primary">Download</a> or 
+<a href="https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html" class="btn btn-primary">Download</a> or 
 <a href="login.php" class="btn btn-outline-primary">Get Started</a>
 </div>
 </div>
