@@ -7,6 +7,8 @@ hip hop style with dark mode era.
 Documentation and installation :
 [https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html](https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html)
 
+Test drive demo : [https://axcora.my.id/coolpos/](https://axcora.my.id/coolpos/)
+
 
 ![new point of sale source code pos apps free download gratis](https://1.bp.blogspot.com/-6oV7M4hkw3I/YKS0OHWR1lI/AAAAAAAAOB0/QG74Tm50qsULnB9ihNfYPMiVq0toKbgkgCLcBGAsYHQ/s1920/aplikasi%2Bkasir%2Btoko%2Bgratis%2Bdownload%2Bsource%2Bcode%2Bpos%2Bfull%2Bfree%2B%25281%2529.jpg)
 
@@ -35,3 +37,5 @@ Get started Now with cool pos web apps.
 
 Documentation and installation :
 [https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html](https://www.hockeycomputindo.com/2021/05/new-source-code-pos-free-download.html)
+
+Test drive demo : [https://axcora.my.id/coolpos/](https://axcora.my.id/coolpos/)
